@@ -1,1 +1,1 @@
-# Joseph-Gathage.github.io
+# JosephGathage.github.io
